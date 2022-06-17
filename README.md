@@ -1,0 +1,1 @@
+# Qualidade_Efici-ncia_Ventilador-
